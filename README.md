@@ -1,1 +1,1 @@
-HELLO
+Ne znam sta sad
